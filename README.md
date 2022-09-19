@@ -19,3 +19,5 @@ What do you call an alligator detective?   An Investi-gator
 What's a pirate's favorite letter? C...
 
 What is a computer's favorite snack? Computer chips
+
+What did the bartender say to the horse? Why the long face
