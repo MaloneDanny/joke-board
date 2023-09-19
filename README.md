@@ -2,6 +2,8 @@
 
 What did the bartender say to the horse? Why the long face
 
+What did the fish say when it ran into the underwater wall? Dam
+
 What does a nosy pepper do? Gets jalapeno business
 
 Two goldfish are in a tank. One says to the other, "Do you know how to drive this thing?"
