@@ -2,6 +2,8 @@
 
 What did the bartender say to the horse? Why the long face
 
+What does a nosy pepper do? Gets jalapeno business
+
 Two goldfish are in a tank. One says to the other, "Do you know how to drive this thing?"
 
 Why did the golfer bring two pairs of pants? In case he got a hole in one.
