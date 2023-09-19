@@ -2,6 +2,8 @@
 
 What did the bartender say to the horse? Why the long face
 
+Why did the pony ask for a glass of water? Because it was a little horse 
+
 Parallel lines have so much in common. It's a shame they'll never meet.
 
 What did the fish say when it ran into the underwater wall? Dam
