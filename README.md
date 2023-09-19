@@ -2,6 +2,8 @@
 
 What did the bartender say to the horse? Why the long face
 
+Parallel lines have so much in common. It's a shame they'll never meet.
+
 What did the fish say when it ran into the underwater wall? Dam
 
 What does a nosy pepper do? Gets jalapeno business
